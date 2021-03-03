@@ -1,0 +1,1 @@
+# globalinvestmentstakepool.github.io
